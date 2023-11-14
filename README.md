@@ -1,1 +1,1 @@
-Whoever believes in me, as  the Scripture has said, ‘Out of his heart will flow rivers of living water.’”(John 7:38 ESV)
+And Jesus stretched out his hand and touched him, saying, “I will; be clean.” And immediately his leprosy was cleansed. (Matthew8:3 ESV):IEUE
